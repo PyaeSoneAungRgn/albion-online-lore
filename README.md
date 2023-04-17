@@ -1,4 +1,4 @@
-# Albion Online Lore
+# Albion Online History
 
 Original: [https://albiononline.com/lore/history](https://albiononline.com/lore/history)
 
